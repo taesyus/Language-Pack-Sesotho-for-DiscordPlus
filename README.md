@@ -1,0 +1,1 @@
+# Language-Pack-Sesotho-for-DiscordPlus
